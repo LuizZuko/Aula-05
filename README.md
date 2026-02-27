@@ -14,3 +14,4 @@ Nos momentos difíceis, nunca esqueça que você é amado, respeitado e importan
 Você merece respeito e felicidade — exatamente do jeito que você é.
 
 Com carinho e admiração. 🌈✨
+o luiz e muito gay
