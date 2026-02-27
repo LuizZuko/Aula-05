@@ -1,1 +1,1 @@
-Luiz sabe liberar 
+Alex é gay
