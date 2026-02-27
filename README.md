@@ -1,4 +1,3 @@
-
 Luiz
 
 Nunca deixe que a ignorância dos outros diminua a grandeza de quem você é. O preconceito que algumas pessoas demonstram não define o seu valor, não mede o seu caráter e muito menos apaga a sua luz.
