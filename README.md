@@ -1,2 +1,1 @@
-o luiz e gay
-Tu é orfão
+Alex, o IBGE passou aqui e confirmou: você atingiu o nível máximo de 'Gayzice' permitido por lei. Parabéns pelo título, lenda!
