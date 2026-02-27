@@ -1,1 +1,1 @@
-Alex é gay
+o luiz e gay
