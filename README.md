@@ -11,6 +11,6 @@ Lembre-se: sua identidade não é motivo de vergonha, é motivo de orgulho. Muit
 
 Nos momentos difíceis, nunca esqueça que você é amado, respeitado e importante. O preconceito fala mais sobre quem pratica do que sobre quem sofre. Continue sendo verdadeiro, continue espalhando sua luz, continue acreditando no seu valor.
 
-Você merece amor, respeito e felicidade — exatamente do jeito que você é.
+Você merece respeito e felicidade — exatamente do jeito que você é.
 
 Com carinho e admiração. 🌈✨
