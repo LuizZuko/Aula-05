@@ -1,1 +1,1 @@
-faz o L
+Luiz sabe liberar 
